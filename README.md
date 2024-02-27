@@ -16,7 +16,7 @@ https://999cha.xyz
 
 # 年度最佳无删减toptoon韩漫
 
-https://toptoons.cfd
+https://toptoons.click
 
 https://toptoons.store
 
